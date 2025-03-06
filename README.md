@@ -1,0 +1,1 @@
+# clipflip-new-ideas
